@@ -1,0 +1,1 @@
+# PaintShop-Pro-2022-RU
